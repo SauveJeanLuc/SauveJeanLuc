@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-I'm SAUVÉ Jean-Luc, A Lifetime Computer-Science Learner.
+I'm SAUVÉ Jean-Luc, Nice to meet you 🙂.
 
-Now active on Gitlab: https://gitlab.com/sauvejeanluc3/
+
